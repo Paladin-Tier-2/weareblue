@@ -1,1 +1,1 @@
-# wearblue.eu
+# weareblue.eu
